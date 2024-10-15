@@ -7,8 +7,10 @@ Mi nombre es Leonardo Fagua
 * github
 
  [Utadeo](https://www.utadeo.edu.co/es/micrositio/avata) 
+
+
  
-![carro](https://www.elcarrocolombiano.com/clasicos-del-mundo/dodge-charger-captiv-diseno-clasico-por-fuera-y-tecnologico-por-dentro/)
+
 
 
 
